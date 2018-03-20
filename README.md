@@ -1,0 +1,2 @@
+# ayangumus
+gümüş yüzük
